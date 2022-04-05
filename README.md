@@ -1,0 +1,1 @@
+# VisionAndScope_Yaz-l-mProjeYonetimi
